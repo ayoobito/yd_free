@@ -1,2 +1,5 @@
-## خالی
-برای شروع به تب Actions رفته و از گردش‌کارهای سمت چپ استفاده کنید
+# DOWNLOADED VIDEOS LIST :
+
+----
+
+- 1 - 🎥 [Analyzing-Sean-Strickland's-Win-Over-Khamzat-Chimaev](https://github.com/ayoobito/yd_free/tree/main/videos/Analyzing-Sean-Strickland%27s-Win-Over-Khamzat-Chimaev)
